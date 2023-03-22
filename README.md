@@ -1,7 +1,7 @@
 
 
-Arvid Dawn Amin
-Mobil: 0727710850
+Arvid Dawn Amin,
+Mobil: 0727710850,
 E-post: bahalul_tuk@yahoo.com
 
 
